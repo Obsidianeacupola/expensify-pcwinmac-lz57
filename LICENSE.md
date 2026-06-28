@@ -1,4 +1,4 @@
-# 
+# Ultimato Expensify fluxo de trabalho para Mac OS | Nativo Expensify fluxo de trabalho para PC Windows. Com suporte a multi-dispositivos e conversão de PDF — otimizado para máximo desempenho em cada plataforma.
 
 
 
